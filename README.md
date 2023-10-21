@@ -1,2 +1,2 @@
 # Resume.Samyak-Meshram-
-A resume is a concise document summarizing your qualifications, skills, and work history. It's a crucial tool for job applications, typically structured with sections for contact information, a brief summary, education, work experience, skills, and achievements.
+I wanted to provide you with a quick overview of my resume description. I have highlighted my key qualifications, professional experience, education, and relevant skills in a concise format to give you a clear understanding of my background. Please feel free to reach out if you need any further information or if you have any specific questions. I look forward to the opportunity to discuss my qualifications in more.
